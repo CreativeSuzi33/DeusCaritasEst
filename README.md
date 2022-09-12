@@ -15,4 +15,4 @@ Hlavné prikázanie: "Milovať budeš Pána, svojho Boha, z celého svojho srdca
 9. Nebudeš žiadostivo túžiť po manželke svojho blížneho.
 10. Nebudeš túžiť po majetku svojho blížneho.
 
-Na tomto základe je postavený tento online časopis, ktorý nájdete aj na adrese: https://kreativnatvorba.site/obchod/ 
+Na tomto základe je postavený tento PDF (online) časopis, ktorý nájdete aj na adrese: https://kreativnatvorba.org/obchod/ 
